@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NingChu1998
 - 🌱 I’m currently an incoming GSU graduated student of 2022 and my major is information systems
-- 👀 I’m interesting in outdoor activities and any tech/future stuffs. My favorite movies are Indiana Jones, Back to the furture and Matrix.
+- 👀 I’m interesting in outdoor activities and any tech/future stuffs. My favorite movies are Indiana Jones, Back to the future and Matrix.
 - 📫 How to reach me -> victoryning0309@gmail.com
 
 
