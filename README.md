@@ -3,6 +3,7 @@
 # Hi there, I'm Ning Chu <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="28px" alt="hi"> 
 🌱 I’m currently a GSU graduated student with a passion on Web3 applications, DeFi, Crypto and NFTs.
 👷🏻‍♀️ My goal is to work effectively, make impact, create valuse, be it web applications and content creation, making abstract ideas tangible.
+🏡 [My Website](https://juliechu1998.carrd.co/)
 <br>
 
 
